@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gmachacek-prove
+- 👋 Hi, I’m @gmachacek
 - 👀 I’m interested in ... 
 - 🌱 I’m currently learning ... how to keep my sanity
 - 📫 How to reach me ... smoke signls
